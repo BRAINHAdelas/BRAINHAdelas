@@ -9,5 +9,6 @@ Meu nome é Brayan oliveira gomes.
   ### Você pode entrar em contato comigo 📫
 
   oliveira.gomes.brayan@escola.pr.gov.br
+  
 
-![](https://media.tenor.com/COPcDJI5v0cAAAAd/el-choro-ronaldinho-dancing.gif](https://media.tenor.com/kruKWS0ebJwAAAAC/ronaldinho-one-man-show.gif)https://media.tenor.com/kruKWS0ebJwAAAAC/ronaldinho-one-man-show.gif)
+![](https://tenor.com/pt-BR/view/ronaldinho-gauch%C3%B3-big-belly-barcelona-futebol-gif-1588707975272762131)
